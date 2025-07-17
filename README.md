@@ -23,7 +23,7 @@
 ---
 
 ## 📫 Connect with Me 
-[![LinkedIn](https://bit.ly/4hN7yC3)
+[![LinkedIn]((https://www.linkedin.com/in/dipesh-malviya-a40642255/))
 
 
 ---
